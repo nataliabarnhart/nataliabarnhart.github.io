@@ -1,1 +1,1 @@
-# nataliabarnhart.github.io
+![Natalia Barnhart](NataliaBarnhart.png)
